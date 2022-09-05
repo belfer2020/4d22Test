@@ -3,3 +3,5 @@
 heloł to ja bartek :)
 
  :))
+
+nie wydaje mi się
